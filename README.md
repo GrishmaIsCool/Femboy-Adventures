@@ -19,8 +19,11 @@ Meta-narrative that plays with the idea of games and scripts.
 Characters
 
 Sam — Streamer. Protagonist.
+
 Emily — Actress. Femboy.
+
 Rani — Tomboy. Evil.
+
 The Witch — ???????????
 
 Status
